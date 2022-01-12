@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **aadhijrwl21@gmail.com**
 
-- ⚡ Fun fact **I wish to do skydiving but am afraid of heights**
+- ⚡ Fun fact **I've always had the fear of heights but I'm planning to skydive**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
