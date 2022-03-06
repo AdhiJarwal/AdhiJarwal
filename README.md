@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Android Development**
 
-- 💬 Ask me about **Python and Tech related stuff**
+- 💬 Ask me about **Android Development, Python, Games, Anime  and Tech related stuff**
 
 - 📫 How to reach me **aadhijrwl21@gmail.com**
 
